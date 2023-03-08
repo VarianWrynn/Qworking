@@ -34,3 +34,13 @@
 ID: iqappleus@iqboard.net
 
 密码:836453Apple
+
+
+
+
+
+## Google Account
+
+fuzhoutmc@gmail.com
+
+hj
